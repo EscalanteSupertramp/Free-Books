@@ -1,6 +1,6 @@
 IMPORTANTE:
 
-1) Estos libros sonde libre descarga y disposción.
+1) Estos libros son de libre descarga y disposción.
 
 2) Las tematicas so muy diversas, pero siempre centradas en el ámbito digital. 
 
